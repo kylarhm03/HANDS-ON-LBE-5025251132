@@ -1,3 +1,3 @@
 Nama: Kyla Rahma M.
 NRP: 5025251132
-Prodi: Informatika
+Prodi: Teknik Informatika ITS
