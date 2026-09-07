@@ -1,3 +1,3 @@
-Nama: Kyla Rahma Maulida
+Nama: Kyla Rahma M.
 NRP: 5025251132
 Prodi: Teknik Informatika
